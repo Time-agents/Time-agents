@@ -1,3 +1,28 @@
-<img width="736" height="1308" alt="image" src="https://github.com/user-attachments/assets/b5d20c69-ae1e-4ec5-b425-9badc0aa1cf6" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="701" height="350" alt="image" src="https://github.com/user-attachments/assets/c253969f-3fd2-4812-8be4-947225089891" />
+
+
+hey so im not okay what is this
+
+
+
+<img width="300" height="600" alt="image" src="https://github.com/user-attachments/assets/f7dd870b-8902-4932-975c-9268f5139fc9" />
 
 
